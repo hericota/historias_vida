@@ -1,1 +1,3 @@
 # historias_vida
+
+Há uns 6 anos eu estava em portugal com a minha família. Estava muito feliz de estar viajando, principalmente por ter viajado de avião pela primeira vez e de estar fora do Brasil. Estávamos entrando na estação de trens de lá e eu estava muito agitado. Só que eu fui na frente, correndo, sem esperar pelos meus pais, entrei no metrô e com muita inocência, não sai dele. De repente eu já estava sentado do lado da janela e vi o meus pais, porém as portas já estavam fechadas e o metrô começou a ir, comigo, sem os meus pais. Graças a Deus, "eu", com certeza com o auxilio do meu Senhor, eu desci na estação seguinte e esperei pelos meus pais. Depois que passou o outro trem, já com eles, nos encontramos e, a minha mãe, principalmente, brigou comigo.
