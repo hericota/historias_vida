@@ -1,1 +1,1 @@
-# historias_vida
+um dia fui tomar banho de rio  de moto com meu primo e a namorada dele, a minha moto e estilo esportiva, e no meio do caminho tinha uma poça grande de lama e ressolvi andar nela e a minha moto atolou, o meu primo foi tentar ajudar a desatolar e acabei sujando ele todo de lama, por fim conseguimos desatolar a minha moto. _
